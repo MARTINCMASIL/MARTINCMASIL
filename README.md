@@ -1,0 +1,4 @@
+- I’m @MARTINCMASIL
+- I working as a Business Developer
+- Video/ Photo editing and PC gaming are my Hobbies
+- Contact: martincmasil@gmail.com
